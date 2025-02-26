@@ -1,7 +1,7 @@
 # THE CHOSEN BAI
 #### Hello im Adrian Rich S. Nablo. 
 #### (12-STEM UNDERSTANDING)
-#### FACEBOOK
+#### [FACEBOOK](https://www.facebook.com/xf4m0usx)
 
 ### ABOUT ME
 - Im 18 years old
