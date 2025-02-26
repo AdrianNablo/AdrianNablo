@@ -14,7 +14,7 @@
 - CC+
 - JAVA SCRIPT 
 - HTML
--PHYTHON
+- PHYTHON
 
  
 
